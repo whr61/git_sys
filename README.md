@@ -1,1 +1,1 @@
-努力赚钱。
+﻿I love China!
